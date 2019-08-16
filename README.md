@@ -1,2 +1,0 @@
-# imanik
-cool and elevated
